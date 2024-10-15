@@ -31,9 +31,7 @@ Dive into the world of unlimited entertainment with **PLXBD** – your ultimate 
 
 Stay updated on new releases, special offers, and exclusive content by following us on social media:
 
-- **[Facebook](#)** - Join our community of movie buffs!
-- **[Twitter](#)** - Get the latest updates and announcements.
-- **[Instagram](#)** - Dive into behind-the-scenes content and sneak peeks!
+- **[Facebook](https://www.facebook.com/profile.php?id=100088867512729)** - Join our community of movie buffs!
 
 ## 🛡️ Legal & Disclaimer
 
